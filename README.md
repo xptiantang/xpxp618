@@ -15,12 +15,14 @@ https://t.me/nrwaishi02
 
 ## 常见问题：
 #### 网址打不开？？？
-1.请切换网络 WIFI/4G/5G 或者使用 科学上网工具（VP恩）
-2.请拷贝完整地址到浏览器访问，防止恶意劫持请带上 https://
-3.更换浏览器为Alook浏览器, edge浏览器, Chrome浏览器
-4.下载科学上网工具：
-免费：安卓- https://turbo-vpn.cn.uptodown.com/android/download 
+###### 1.请切换网络 WIFI/4G/5G 或者使用 科学上网工具（VP恩）
+###### 2.请拷贝完整地址到浏览器访问，防止恶意劫持请带上 https://
+###### 3.更换浏览器为Alook浏览器, edge浏览器, Chrome浏览器
+###### 4.下载科学上网工具：
+免费：安卓- https://turbo-vpn.cn.uptodown.com/android/download
+
 苹果（需要非国区ID）- https://apps.apple.com/us/app/turbo-vpn-private-browser/id1365309175 
+
 收费更稳定：https://nordvpn.com/ 
 
 #### Telegram下载地址：
