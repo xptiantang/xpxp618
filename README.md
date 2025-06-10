@@ -26,7 +26,7 @@ https://t.me/nrwaishi02
 收费更稳定：https://nordvpn.com/ 
 
 #### Telegram下载地址：
-安卓：https://telegram.org/dl/android/apk
-苹果（需要非国区ID）：https://apps.apple.com/us/app/telegram-messenger/id686449807 
+###### 安卓：https://telegram.org/dl/android/apk
+###### 苹果（需要非国区ID）：https://apps.apple.com/us/app/telegram-messenger/id686449807 
 
 #### 请把网址分享给身边有需要的人 ，您的转发、分享是我们前进的动力
