@@ -1,11 +1,11 @@
 ## XP天堂官方邮箱 xptiantang@gmail.com
 ## 官方最新地址
-XP天堂 国内最新网址 https://xpxpav.com/
-XP天堂 海外永久渔民 https://xpxp618.com
+XP天堂 国内最新网址 http://xpav1.com
+XP天堂 海外永久域名 https://xpxp618.com
 
 ## 失联后如何找到回家的路👇：
 #### 方法1:
-加入XP天堂 电报官方群群：https://t.me/+feqeAUNVzBAwYWFk
+加入XP天堂 电报官方群群：https://t.me/XPheaven
 #### 方法2:
 邮箱发送任意内容邮件可获取最新地址 官方邮箱： xptiantang@gmail.com
 #### 方法3:
