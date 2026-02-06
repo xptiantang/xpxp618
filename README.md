@@ -2,7 +2,7 @@
 
 ## XP天堂官方邮箱 xptiantang@gmail.com
 ## 官方最新地址
-XP天堂 国内最新网址 https://xpav13.com/
+XP天堂 国内最新网址 https://xptt4.com
 XP天堂 海外永久域名 https://xpxp618.com/
 
 ## 失联后如何找到回家的路👇：
