@@ -1,8 +1,8 @@
-回家的路 更新日期：2026年3月28日
+回家的路 更新日期：2026年3月29日
 
 ## XP天堂官方邮箱 xptiantang@gmail.com
 ## 官方最新地址
-XP天堂 国内最新网址 https://xptt6.com
+XP天堂 国内最新网址 https://xpava5.com
 XP天堂 海外永久域名 https://xpxp618.com/
 
 ## 失联后如何找到回家的路👇：
