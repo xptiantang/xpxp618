@@ -13,7 +13,7 @@ XP天堂 海外永久域名 https://xpxp618.com/
 #### 方法3:
 收藏XP天堂官方最新地址发布页 (https://github.com/xptiantang/xpxp618)
 ## 商务合作请电报（Telegram）联系
-https://t.me/hlgf6
+[https://t.me/hlgf6](https://p4n2m.t6vhns-t1t1.icu)
 
 ## 常见问题：
 #### 网址打不开？？？
