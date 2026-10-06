@@ -1,6 +1,6 @@
 Официальная электронная почта XP Tiantang: xptiantang@gmail.com
 Актуальные официальные ссылки
-Актуальная ссылка XP Tiantang для доступа из Китая: https://xpxpc10.com | Постоянный зарубежный домен XP Tiantang: https://xpxp618.com/
+Актуальная ссылка XP Tiantang для доступа из Китая: https://xpxpc11.com | Постоянный зарубежный домен XP Tiantang: https://xpxp618.com/
 
 Как найти нас снова, если связь прервется 👇:
 Способ 1:
